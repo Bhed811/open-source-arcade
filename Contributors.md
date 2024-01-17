@@ -3,9 +3,11 @@ Angel Sharma
 Akhil Punia
 Noble Mittal
 Bhoomi Bonal
+Dhairya Singhal
+Arnav Gupta
+Anshika Arora
 Somil Jain
 Nikhil Nagar
-Anshika Arora
 Yash Hirani
 Divyansh Agarwal
 Sanjeet Manna
